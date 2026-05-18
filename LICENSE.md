@@ -1,4 +1,4 @@
-# 
+# top bot sniper MEV addons é o melhor bot sniper MEV addons com arbitragem com empréstimos flash e controle de slippage. Seguro, confiável e otimizado para estratégias MEV, sniper
 
 
 
